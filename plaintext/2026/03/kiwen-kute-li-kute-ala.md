@@ -33,16 +33,19 @@ ona li jo e linja mute, e ilo linja kin.
 >kiwen Kasi li kiwen Rose Quartz tan ni: nasa wawa li jo e sitelen kasi
 >
 >kulupu pi kiwen kule li kulupu Crystal Gems
+>
+>9/27/26 toki! mi lukin e lipu ni li toki insa e ni: "mi pali e lipu ni lon tenpo ni la mi pali e lipu kepeken nasin ante."
+tan pilin ni la mi ante e nimi lili. (mi wile ala ante e mute.)
 
-”mi wile ante e nimi mi”  kiwen Kute li toki, noka ona li lon ko mute. telo li luka wawa e ma pi ko mute. monsi pi kiwen Kasi li lon ko mute. ona li lukin e ona — luka ona li kama lon nena noka ona. 
+”mi wile ante e nimi mi” kiwen Kute li toki. telo li luka wawa e ma pi ko mute. anpa sijelo pi kiwen Kasi li lon ko ni. luka pi kiwen Kasi li kama lon nena noka ona. lawa ona li sike tawa monsi. kiwen Kute li sinpin lon sewi ko. 
 
-monsi pi kiwen Kute li kama lon supa ko, lon poka kiwen Kasi. kiwen Kasi li toki e ni: “mi kute ala e ni: kiwen li ante e nimi ona. ..nn taso kiwen Linja a li ante e nimi ona..” 
+anpa sijelo pi kiwen Kute li kama lon supa ko, lon poka kiwen Kasi. kiwen Kasi li toki e ni: “mi kute lili e ni: kiwen li ante e nimi ona. taso kiwen Linja a li ante e nimi ona..” 
 
 kiwen Kasi li kute insa e nimi pi kiwen lawa Jelo: *kiwen sina li nimi ala. sina ken ala ‘ante’ e nimi pi kiwen ona. kiwen sina li sina, sina ken ala ante e ni.* kiwen Kasi li toki insa e ni: *kiwen lawa Jelo li nasa.*
 
 kiwen Kasi li lukin e lawa pi pilin ike pi kiwen Kute. kiwen Kute li toki e ni: “jan ala li jo e mi. …sina jo ala e mi.”
 
-”lon.” jan Kasi li toki.
+”ni li lon.” jan Kasi li toki.
 
 ”tenpo kama — n, tenpo ni la, mi kute ala. mi kiwen ‘kute’ ala.”
 
